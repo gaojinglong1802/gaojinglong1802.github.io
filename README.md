@@ -3,7 +3,7 @@
 
 ## My website：
 
-[Homepage](http://www.isuii.top) - [Blog](https://404.isuii.top) - [Forum](https://404.isuii.top)
+[Homepage](http://www.isuii.top) - [Blog](https://hax2.isuii.top) - [Forum](https://404.isuii.top)
 
 ## Contact me：
 

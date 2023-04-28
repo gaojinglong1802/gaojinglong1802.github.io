@@ -3,7 +3,7 @@
 
 ## My website：
 
-[Homepage](http://www.isuii.top) - [Blog](https://hax2.isuii.top) - [Forum](https://forum.isuii.top)
+[个人主页](https://www.184439103.xyz) - [博客](https://gaojinglong.gitee.io/gaojinglong.gitee.io/404/) - [论坛](https://gaojinglong.gitee.io/gaojinglong.gitee.io/404/)
 
 ## Contact me：
 
